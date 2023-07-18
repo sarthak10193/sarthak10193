@@ -11,4 +11,4 @@
 * [Publications](https://scholar.google.com/citations?user=nNSe8UIAAAAJ&hl=en)
 * [US Patents](https://scholar.google.com/citations?view_op=view_citation&hl=en&user=nNSe8UIAAAAJ&citation_for_view=nNSe8UIAAAAJ:2osOgNQ5qMEC)
 
-If you like to play tennis, discuss photography or ML hit me up on [LinkedIn](https://www.linkedin.com/in/arorasarthak/). I'd be excited to have a chat. 😸
+If you like to play tennis, discuss photography or talk ML hit me up on [LinkedIn](https://www.linkedin.com/in/arorasarthak/). I'd be excited to have a chat. 😸
